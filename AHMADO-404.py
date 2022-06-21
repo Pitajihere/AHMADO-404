@@ -1,4 +1,4 @@
-#Encrypted By AHMADO
+#Encrypted By PitajiHere
 
 #WHATSAPP : +1(647)374-5886/DON,T TRY TO EDIT THIS TOOL/
 
